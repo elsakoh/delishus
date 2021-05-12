@@ -2,6 +2,8 @@
 
 > Source: Nino's home
 >
+> Updated: Elsa
+>
 > https://www.youtube.com/watch?v=cI0S-kT7x6M
 
 ## Bread
@@ -48,13 +50,11 @@ Proof again 15 mins
 
 ## Coffee coat 
 
-3g instant coffee 
-
-5 ml Hot water 
+19g instant coffee (I used nescafe 3 in 1)
 
 1/2 egg 
 
-35g powdered sugar
+55g powdered sugar
 
 40g all purpose flour 
 
@@ -72,4 +72,4 @@ Place in piping bag and pipe on top of buns
 
 ### Baking instructions
 
-Bake at 180C for 18 minutes
+Bake at 180C for 20 minutes (crissppppy)
